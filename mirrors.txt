@@ -1,3 +1,4 @@
 Mirrors:
 1. Download ZIP of repo.
 2. https://bitbucket.org/TheRighteousMessiah [just created]
+3. https://themessiah.s3.amazonaws.com/TheRighteousMessiah-main+(4).zip
