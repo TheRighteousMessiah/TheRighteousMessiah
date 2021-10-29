@@ -1,0 +1,4 @@
+Instructions:
+Please use pull-requests; however master branch has 101% trust and 0 security - and can also be committed to ON THESE CONDITION:
+1. that whatever you are commiting to master is 101% true according to The Holy Torah given by GOD Almighty to Moses, and
+2. You have tried to make a pull request or contact me directly and I have not responded in time.
