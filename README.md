@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @TheRighteousMessiah
-- 👀 I’m interested in World Peace & Prosperity.
+- 👀 I’m interested in World Peace, Eternal Life - and Unlimited Prosperity and Abundance - as PROMISED in The Holy Torah given by GOD Almighty to Moses.
 - 🌱 I’m currently learning more and more about GOD Almighty, The Holy Torah - and The People Worldwide - and will NEVER finish learning.
 - 💞️ I’m looking to collaborate on everything & everyone at all times EXCEPT The Holy Sabbath and Torah Holidays.
 - 📫 How to reach me here, and +1-347-674-4408 and TheRebbe@WeWantZeroTax.org
